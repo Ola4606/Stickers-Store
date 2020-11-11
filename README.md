@@ -1,1 +1,1 @@
-The Privacy Policy for the sticker store app
+The Privacy Policy for The Stickers Store App I made avaliable on PlayStore
